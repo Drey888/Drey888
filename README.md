@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Andrei Stankevits
-- 👀 I’m interested in your announcement. 
+- 👀 I’m interested in your announcement and position SOFTWARE QUALITY ASSURANCE INTERN: BLOCKCHAIN
 - 🌱 Recently i graduated in Software Development Academy for QA tester.
 - 💞️ I’m looking to collaborate on your project on part time.
 - 📫 Email @ bcn.zebra@icloud.com or mobile: +37256248844
